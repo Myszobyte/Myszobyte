@@ -1,3 +1,4 @@
-Hello, I am Myszobyte.
-I’m currently learning: JS / C#
-How to reach me: x/#4302
+<introduction>
+; Hello, I am Myszobyte.
+; How to reach me: x/#4302
+</introduction>

@@ -1,4 +1,0 @@
-- 👋 Hi, I’m @Myszobyte
-- 👀 I’m interested in big ass round titty girl let it hang
-- 🌱 I’m currently learning at school
-- 📫 How to reach me x/#4302
